@@ -65,7 +65,7 @@ And everything that followed—every miracle, every catastrophe, every impossibl
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-## Emiliano's First Love
+## Emiliano's First Love<a name="p2"></a>
 
 Emiliano's first girlfriend was Brittany Cluetrick. It was as easy for Emiliano to have sex with Cluetrick as it was for him to fist her. He was suave and outgoing, and gentle until he was not. Polite, intelligent, and was Cluetrick's top pick for ethnic boyfriend.
 
@@ -163,7 +163,7 @@ And like everything else in his life, it had been touched by that power sleeping
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-## Emiliano Has His First Break-Up
+## Emiliano Has His First Break-Up<a name="p3"></a>
 
 Despite Emiliano's seductive and suave nature, Emiliano could not have held onto Brittany Cluetrick. Brittany Cluetrick was too Germanic-Slavic to exude the same kind of warm, romantic compassion as Emiliano. She had other pursuers. Those pursuers had group sex with her.
 
@@ -313,7 +313,7 @@ And the world—Florida, America, reality itself—would eventually bend around 
 
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-# Ameliorating Emiliano
+# Ameliorating Emiliano<a name="p4"></a>
 
 Emiliano had this power to him after the event. Emiliano, the passionate and fiery Romantic he was, had no difficulties converting his love into hate.
 
@@ -451,7 +451,7 @@ And he was only just beginning.
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-## The Real Emiliano
+## The Real Emiliano<a name="p5"></a>
 
 At the young age of 25, Emiliano's empire was already rivaling the neo-Carnegie, post-Rockefeller commercial branches.
 
@@ -599,7 +599,7 @@ This was only the beginning.
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-## The Menace of Emiliano's Tentacles
+## The Menace of Emiliano's Tentacles<a name="p6"></a>
 
 Emiliano's empire would have been the envy of the much-fabled Corleones from the Godfather Trilogy.
 
@@ -721,7 +721,7 @@ It was whether there would be anything left of America when it finally did.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-## Emiliano Kills The DEA and FBI
+## Emiliano Kills The DEA and FBI<a name="p7"></a>
 
 The United States, at that point in time, had gone rampant and the officials were aggravating the conditions even further.
 
@@ -869,7 +869,7 @@ His victory was complete.
 
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-## The Supreme Leader Emiliano's Funeral
+## The Supreme Leader Emiliano's Funeral<a name="p8"></a>
 
 So many accolades, Nobel Prizes, at the funeral.
 
